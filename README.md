@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BrandonTRoberts
+- 👀 I’m interested in Cyber Security and Automation with Python 
+- 🌱 I’m currently learning Every Day :-)
+- 💞️ I’m looking to collaborate on Automation projects 
+- 📫 How to reach me on Discord @Qbz77#6568 and on Twiter @mrqbz77
